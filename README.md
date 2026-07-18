@@ -1,5 +1,8 @@
-## Hi there 👋
-
+hii! !
+call me derek . Or john ok 
+system/audhd 
+im not cool thats all i have to say
+Not very opem to makigng friends ok i love my wife @off-the-hook
 <!--
 **criminallyoffensive/criminallyoffensive** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
